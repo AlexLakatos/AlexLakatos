@@ -1,3 +1,5 @@
+![AVOCADO DAYS](https://alexlakatos.com/img/posts/avocados/avocado-days.png)
+
 I suppose this is the part where I get to talk about myself like I don't do that enough already. Fair warning, if asked, I will talk more about these:
 
 - 👨‍💻 I'm Alex, but most of the internet knows me as "Laka". I've [passed 30](https://twitter.com/lakatos88/status/1197492397673811968), and I did collect 200$.
